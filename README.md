@@ -9,7 +9,7 @@
 |------|------|
 | Adelia Nurazizah Omega Putri | G1A023022 |
 | Carissa Nabilah Putri Rozi | G1A023026 |
-| Filya Chiara Amanda | G1A023024 |
+| Filya Chiara Amanda | G1A023034 |
 
 ---
 
